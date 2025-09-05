@@ -89,6 +89,6 @@ Big thanks to **Rishabh Mishra** for his *“Power BI Project End-to-End”* You
 
 ## 🔗 Connect with Me
 
-Feel free to connect or message me on [LinkedIn](https://linkedin.com/in/yourprofile) for feedback or collaboration!
+Feel free to connect or message me on [LinkedIn](https://www.linkedin.com/in/sourav-singh-gandhar-b1739a24b/) for feedback or collaboration!
 
 ---
